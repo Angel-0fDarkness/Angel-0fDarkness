@@ -1,2 +1,2 @@
 
-=☆ﾟ.*･｡ﾟ![Profile view counter on Github](https://komarev.com/ghpvc/?username=Angel-0fDarkness)☆ﾟ.*･｡ﾟ=
+=☆.*･｡ﾟ![Profile view counter on Github](https://komarev.com/ghpvc/?username=Angel-0fDarkness)☆.*･｡ﾟ=
