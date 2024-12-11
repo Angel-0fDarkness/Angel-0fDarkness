@@ -1,5 +1,5 @@
 
-![Titelloses_1130_20241211201006](https://github.com/user-attachments/assets/b58614f6-88d5-443e-b49e-9e27a5a7a0d3)  ![majima](https://github.com/user-attachments/assets/acc358ec-ca24-4cb9-be1a-1be43049b46a)  =☆.*･｡ﾟ![Profile view counter on Github](https://komarev.com/ghpvc/?username=Angel-0fDarkness)☆.*･｡ﾟ=  ![majima](https://github.com/user-attachments/assets/2519486d-b44b-4caf-9e23-602d23cfbb33) 
+![Titelloses_1130_20241211201006](https://github.com/user-attachments/assets/1be5b643-2339-4809-97b3-cc65a5cd6516)  ![majima](https://github.com/user-attachments/assets/acc358ec-ca24-4cb9-be1a-1be43049b46a)  =☆.*･｡ﾟ![Profile view counter on Github](https://komarev.com/ghpvc/?username=Angel-0fDarkness)☆.*･｡ﾟ=  ![majima](https://github.com/user-attachments/assets/2519486d-b44b-4caf-9e23-602d23cfbb33) 
 
 
 
